@@ -8,7 +8,7 @@ I'm aspiring to follow my passions and make the hop across the pond to become a 
 
 Here you'll find a few things I've worked on in my job and also some fun projects too while I learn different languages 🎓
 
-Thanks for dropping by and having gander at my profile. Feel free to chat anytime! 🙋‍♂️
+Thanks for dropping by and having gander at my profile. Feel free to chat anytime (LinkedIn below)! 🙋‍♂️
 
 ###### *[Obligatory sneaky LinkedIn link](https://linkedin.com/in/andrewryan98)*
 
