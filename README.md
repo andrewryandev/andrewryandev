@@ -1,10 +1,8 @@
 ### Hi there 👋
 
-I'm a technical support officer currently working for the NSW Government 👔
+I'm a DevOps Engineer currently working in the higher education sector 👔
 
 Investigating and solving problems is in my DNA 🧬
-
-I'm aspiring to follow my passions and make the hop across the pond to become a full-time developer 👨‍💻
 
 Here you'll find a few things I've worked on in my job and also some fun projects too while I learn different languages 🎓
 
